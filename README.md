@@ -1,3 +1,3 @@
 # Resume
 
-Please feel free to reach out with any questions or need for additional information!
+Please feel free to reach out with any questions or additional information!
